@@ -1,9 +1,9 @@
 the yasuho hirose... !
 
-c*h encouraged <3 w2i if i do not respond immediately !
+   c*h encouraged <3 w2i if i do not respond immediately !
 
-main - @hitachiH8
-
+    main - @hitachiH8
+ 
 
 
 <img width="220" height="220" alt="yasuho-hirose-yasuho" src="https://github.com/user-attachments/assets/d9a73e28-e574-4efe-b46f-b03efaa8b963" />
